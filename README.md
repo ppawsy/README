@@ -13,6 +13,4 @@ again, if my ponies are seen without my GitHub attached, it is not me. thank you
 *✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:
 
 
-⚠I have been diagnosed autism over the summer of 2026 which explains how I react to situations or online drama in general, because I get scared of conflict or being held under pressure and don't know how to react. sometimes I speak before I think⚠ iwec or dni if u think I'm too 𝗺𝘂𝗰𝗵
-
-I'm also currently recovering from unfriending someone who are tricking people into thinking they are 19-20. it sucks, but they are toxic and problematic so I need new friends or someone to help keep me small talk to distract me.
+⚠I have been diagnosed autism over the summer of 2026 which explains how I react to situations or online drama in general, because I get scared of conflict or being held under pressure and don't know how to react. sometimes I speak before I think⚠ iwec or dni if u think I'm too much
